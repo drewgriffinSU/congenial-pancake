@@ -1,4 +1,6 @@
+Landscape in the Early Morning
 
+    By Alfred Lichtenstein
  The air is gray.    Who knows something good for soot?
     Next to an ox grazing on the ground
     Stands an astonished deeply serious mountaineer.
